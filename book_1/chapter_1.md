@@ -165,7 +165,7 @@ Prof McG made fish faces like she was going to say something but thought better.
 
 A _vroom vroom_ sound broke the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky - a huge motorcycle fell out of the air and landed on the road in front of them.
 
-If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and had some major BDE (big dick energy). His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
+If the motorcycle was bare big, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man. His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
 
 "Hagrid," said Dumbledore, sounding relieved. "Finally. Where'd you get the ride?"
 
